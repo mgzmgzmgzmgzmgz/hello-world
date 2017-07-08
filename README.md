@@ -1,2 +1,5 @@
 # hello-world
-First Repo
+
+Whaddup homies!
+
+...... Do you want to date me!?!?!
